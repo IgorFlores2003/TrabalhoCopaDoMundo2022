@@ -1,1 +1,0 @@
-# TrabalhoCopaDoMundo2022
